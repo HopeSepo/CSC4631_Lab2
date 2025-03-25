@@ -1,1 +1,1 @@
-Team lead: Macpride Bulongo
+Team lead: Macpride Bulongo and Sepiso Muyangwa
