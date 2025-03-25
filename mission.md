@@ -1,1 +1,1 @@
-Mission Statement: We aim to collaborate and use the power of teamwork
+This is a dummy commit for reverting purposes
