@@ -1,1 +1,1 @@
-Mission Statement: We aim to put our heads together inorder to achieve the most possible
+Mission Statement: We aim to collaborate and use the power of teamwork
